@@ -1,7 +1,7 @@
 ### Hello, I'm yearcakes 👋💖
 
 ✨ Fight For All That Is Beautiful In The World  
-🌸 この世界のすべての美しいもののために戦う ✨
+🌸 この世界のすべての美しいもののために戦う
 
 ---
 
