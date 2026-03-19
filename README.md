@@ -9,7 +9,7 @@
 - A high school student & coding enthusiast  
 - Loves cute cats, pastel colors, games, anime 🩵💖  
 - Always exploring new ideas and languages 🌟  
-- 📩 Contact: [zhaozhuoran1203@gmail.com](mailto:zhaozhuoran1203@gmail.com)
+- 📩 Contact: [zhaozhuoran@yearcakes.com](mailto:zhaozhuoran@yearcakes.com)
 
 ---
 
