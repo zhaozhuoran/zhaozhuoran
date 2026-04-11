@@ -1,7 +1,9 @@
 ### Hello I am Zhuoran 👋💖
 
 ✨ Fight For All That Is Beautiful In The World  
+<!--
 🌸 この世界のすべての美しいもののために戦う
+-->
 
 ---
 
@@ -44,8 +46,9 @@
 
 > Fight For All That Is Beautiful In The World  💖
 
+<!--
 > この世界のすべての美しいもののために戦う  🌸
-
+-->
 
 <!--
 ---
